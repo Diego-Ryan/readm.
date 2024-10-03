@@ -1,0 +1,2 @@
+# readm.
+Estudos faculdade 
